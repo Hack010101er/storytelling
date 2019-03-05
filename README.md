@@ -1,4 +1,4 @@
-# Bienvenid@s a Hack010101:
+# Bienvenid@s a Hack010101er:
 Digital Storytelling / Narraciones y creatividad en ecosistema digital.
 
 
